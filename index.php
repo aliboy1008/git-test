@@ -1,1 +1,1 @@
-Ako si index dat pe eh pe
+Ako si index dat pee eych pee
