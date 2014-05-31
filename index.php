@@ -1,0 +1,1 @@
+Ako si index dat pe eh pe
